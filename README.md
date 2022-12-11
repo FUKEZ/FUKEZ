@@ -1,0 +1,5 @@
+- 👋 FUKEZ here
+- 👀 Im a Scripter.
+- 🌱 Im interested, in Roblox Exploiting, Flipper Zero, and HackRF
+- 💞️ ! fukez#8924 btw
+- 📫 If you got any questions, or need help, DM me on Discord.
